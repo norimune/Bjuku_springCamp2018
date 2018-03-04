@@ -2,6 +2,11 @@
 ベイズ塾春合宿2018練習用レポジトリ
 
 
+endaaaaaaaaa yeaaaaaaaaaa will always loveeeee youuuuuuu huuuuuu
+
+
+=======
+
 ## ベイズ塾の歌
 
 ベイズ男児の生き様は
@@ -21,5 +26,3 @@
 2018合宿開催日程
 =======
 3月2日-3月4日
-
-
